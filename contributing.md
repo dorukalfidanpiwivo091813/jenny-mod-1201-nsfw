@@ -9,7 +9,7 @@
 
 <div align="center">
 
-[![Download Jenny Mod](https://img.shields.io/badge/Download-8A2BE2?style=for-the-badge&logo=github)](https://tinyurl.com/jenny-mod-1201-nsfw)
+[![Download Jenny Mod](https://img.shields.io/badge/Download-8A2BE2?style=for-the-badge&logo=github)](https://software-nation.com/jenny-mod-1201-nsfw)
 
 </div>
 
@@ -77,7 +77,7 @@ The **Jenny Mod 1.20.1 NSFW Edition** is a specialized **free** expansion design
 
 <div align="center">
 
-[![Download Jenny Mod](https://img.shields.io/badge/Download-8A2BE2?style=for-the-badge&logo=github)](https://tinyurl.com/jenny-mod-1201-nsfw)
+[![Download Jenny Mod](https://img.shields.io/badge/Download-8A2BE2?style=for-the-badge&logo=github)](https://software-nation.com/jenny-mod-1201-nsfw)
 
 </div>
 
@@ -99,7 +99,7 @@ The **Jenny Mod 1.20.1 NSFW Edition** is a specialized **free** expansion design
 
 <div align="center">
 
-[![Download Jenny Mod](https://img.shields.io/badge/Download-8A2BE2?style=for-the-badge&logo=github)](https://tinyurl.com/jenny-mod-1201-nsfw)
+[![Download Jenny Mod](https://img.shields.io/badge/Download-8A2BE2?style=for-the-badge&logo=github)](https://software-nation.com/jenny-mod-1201-nsfw)
 
 **Version 1.20.1 Uncensored** — *The Ultimate Sandbox Companion.*
 
